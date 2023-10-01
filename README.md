@@ -1,0 +1,2 @@
+# stronazbiorcza
+ Wszystkie linki ;)
